@@ -1,1 +1,1 @@
-Per 40yuan
+Per 70yuan
